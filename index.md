@@ -1,3 +1,6 @@
 # Welcome to my blog
 
-I'm glad you are here. I plan to talk about ...
+I'm JA5MlN and I'm super happy that you are here :)
+
+<3
+
